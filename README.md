@@ -1,4 +1,4 @@
-Trabajo Permanente 2B
+Trabajo Permanente 2C
 Alumno: Rodrigo Adolfo Sierra Huaracha
 
 Procedimiento: 
